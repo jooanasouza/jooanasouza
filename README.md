@@ -1,4 +1,4 @@
-oiii, eu sou a Joana, aluna do cepb da turma do 1B
+oiii, eu sou a Joana, aluna do Carmela Bortor da turma do 2B
 
 
   ##
